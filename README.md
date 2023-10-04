@@ -1,2 +1,2 @@
 # CV
-Here you can check my CV's, either up-to-date or not
+Here you can check out my CV and other related documents.
